@@ -1,0 +1,1 @@
+Kontol kau memek ASU !!
